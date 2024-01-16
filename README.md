@@ -1,1 +1,1 @@
-Hello, wellcome to my GitHub!
+😊 GitHub is awesome! 
